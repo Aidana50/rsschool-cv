@@ -1,3 +1,3 @@
 # rsschool-cv
-#Aidana
-## Contacts
+## Aidana Sadirova
+### Contacts
